@@ -35,3 +35,6 @@ Global water resources are depleting, with a looming threat of **"Zero Water Day
 
 ## Domain Bucket
 - Clean & Green Technology
+
+## Detial Solution (Youtube)
+https://youtu.be/ZJCm2JW1PTM
